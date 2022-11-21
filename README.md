@@ -3,3 +3,5 @@
 - 🤔 Atualmente tenho aprendido sobre programação 
 - 💬 Procuro mais conhecimento 
 - 📫 Entre em contato comigo gustavo.demetrio@escola.pr.gov.br
+
+- Colégio Estadual Santa Maria Goretti 1 ano C
